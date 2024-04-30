@@ -5,7 +5,7 @@
 ### **Social media:**
 [![instagram](https://img.shields.io/badge/instagram-%23E4405F.svg)](https://instagram.com/soumyajit.exe) @soumyajit.exe
 
-![X (formerly Twitter) Follow](https://img.shields.io/twitter/follow/:soumyajit_ali3n)
+![X (formerly Twitter) Follow](https://img.shields.io/twitter/follow/:s_dass_)
 
 
 
