@@ -28,5 +28,9 @@ CSS                            ███████████████░�
 ```
 
 -----
+**Coding since lockdown**
+**started YouTube channel even at 12. Closed it soon after👻**
+## **This it was: https://www.youtube.com/@oceanprogrammer** 🥱
+Check the GitHub of that if you want to 👅: https://github.com/OceanProgrammer
 
-Last Edited on: 07/01/2024
+Last Edited this cover: 21/04/2025
